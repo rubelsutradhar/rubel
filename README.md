@@ -1,6 +1,5 @@
 # 💫 About Me:
-- 🌟 Currently working on a Notion OS project, aiming to boost productivity for myself and others.
-- 🌍 Seeking collaboration and guidance on refining my Notion setup.
+- 🌟 Currently working as an Accounts Officer at a recruiting agency., aiming to boost productivity for myself and others.
 - 📚 Expanding my knowledge in DropShipping as part of my entrepreneurial journey.
 - 🧠 Passionate about productivity—feel free to ask me anything on the topic!
 - 🎌 Fun fact: I'm a huge anime enthusiast.
