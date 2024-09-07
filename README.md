@@ -1,8 +1,8 @@
 # 💫 About Me:
 - 🌟 Currently working as an Accounts Officer at a recruiting agency, aiming to boost productivity for myself and others.
-- 📚 Expanding my knowledge in DropShipping as part of my entrepreneurial journey.
-- 🧠 Passionate about productivity—feel free to ask me anything on the topic!
-- 🎌 Fun fact: I'm a huge anime enthusiast.
+- 📚 Experienced educator with a background in teaching accounting, finance, and general math, and now expanding my skills in online.
+- 🧠 Passionate about productivity and continuous learning—feel free to reach out with any questions or insights!
+- 🎌 Fun fact: I like exploring but don't have the time to explore.
 
 ## 🌐 Connect with Me:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/uSStHepegr) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/yourusername) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230A66C2.svg?logo=LinkedIn&logoColor=white)](https://linkedin.com/in/rubel-sutradhar) [![GitHub](https://img.shields.io/badge/GitHub-%23121011.svg?logo=GitHub&logoColor=white)](https://github.com/rubelsutradhar)
